@@ -7,6 +7,307 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 18:22
+---
+
+## VahidOOnLine — post 240978
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240978_1779202352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: ممکن است مجبور شویم یک ضربه دیگر به جمهوری اسلامی وارد کنیم؛ اما مطمئن نیستم.
+
+ترامپ افزود: تهران برای دستیابی به توافق التماس می‌کند.
+
+او شامگاه دوشنبه گفت به درخواست رهبران قطر، عربستان سعودی و امارات متحده عربی، حمله نظامی برنامه‌ریزی‌شده آمریکا به جمهوری اسلامی را که قرار بود سه‌شنبه انجام شود، متوقف کرده است.
+
+او گفت در صورت عدم دستیابی به توافقی قابل قبول، آمریکا آماده اجرای حمله گسترده خواهد بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+آن‌ها التماس می‌کنند که معامله‌ای انجام دهند.
+ممکن است مجبور شویم ضربه بزرگی دیگر به آن‌ها بزنیم. هنوز مطمئن نیستم.
+خیلی زود خواهید فهمید.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341932
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341932_1779202353.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"All of this was paid for by myself."
+
+President Trump shows off the construction site of the historic White House ballroom, stressing the project is being funded as a gift — not by taxpayers.
+
+"This is a gift to the United States of America. and more than a gift. It's going to be one of the most beautiful buildings that's ever been built in the country. In Washington, D.C."
+</div>
+
+## FoxNewsTwitter — post 341931
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341931_1779202355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump speaks about the White House ballroom construction https://twitter.com/i/broadcasts/1OxwblrkApEJB
+</div>
+
+## pm_afshaa — post 91033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من تا جمعه یا شنبه به ایران وقت خواهم داد، بعد از آن متوجه خواهید شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91032
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91032_1779202356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: دیشب 1 ساعت با حمله به ایران فاصله داشتیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91031
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91031_1779202356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ممکنه مجبور بشیم یک ضربه بزرگ دیگر به آنها بزنیم. من هنوز مطمئن نیستم؛ خیلی زود خواهید فهمید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337943
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337943_1779202357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: ممکن است مجبور شویم یک ضربه دیگر به جمهوری اسلامی وارد کنیم؛ اما مطمئن نیستم.
+
+ترامپ افزود: تهران برای دستیابی به توافق التماس می‌کند.
+
+او شامگاه دوشنبه گفت به درخواست رهبران قطر، عربستان سعودی و امارات متحده عربی، حمله نظامی برنامه‌ریزی‌شده آمریکا به جمهوری اسلامی را که قرار بود سه‌شنبه انجام شود، متوقف کرده است.
+
+او گفت در صورت عدم دستیابی به توافقی قابل قبول، آمریکا آماده اجرای حمله گسترده خواهد بود.
+https://iranintl.com/202605197808
+</div>
+
+## IranianMinds — post 20396
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20396_1779202357.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار: ایران چند روز فرصت دارد پای میز مذاکره بیاید؟
+
+ترامپ: دو یا سه روز. شاید جمعه، شنبه، یکشنبه. شاید اوایل هفته آینده. مدت زمان محدودی است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20395
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20395_1779202359.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران:
+
+دیروز یک تماس گرفتم و گفتن آقا، می‌تونید صبر کنید؟ فکر می‌کنیم به یک توافق نزدیکیم.
+
+منم گفتم اشکالی نداره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+داریم با ایرانیا همین الان مذاکره میکنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20393
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20393_1779202360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+فقط یک‌ ساعت تا حمله به ایران فاصله داشتیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+ایران میخواد خاورمیانه رو نابود کنه ولی ما اجازه اینکارو بهش نمیدیم !
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که تصور می‌رود بارندگی‌های بهار امسال، کم‌بارشی پاییز و زمستان را جبران کرده باشد، سخنگوی صنعت آب ایران دیروز، ۲۸ اردیبهشت، اعلام کرد که بارش‌ها در شرایط معمولی است و ترسالی را «مطلقا» رد کرد. در روزهای ۲۷ و ۲۸ اردیبهشت، تصاویری از برف دیرهنگام بهاری…
+</div>
+
+## BBCPersian — post 281501
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_281501_1779202361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که تصور می‌رود بارندگی‌های بهار امسال، کم‌بارشی پاییز و زمستان را جبران کرده باشد، سخنگوی صنعت آب ایران دیروز، ۲۸ اردیبهشت، اعلام کرد که بارش‌ها در شرایط معمولی است و ترسالی را «مطلقا» رد کرد.
+
+در روزهای ۲۷ و ۲۸ اردیبهشت، تصاویری از برف دیرهنگام بهاری در شمال تهران و آذربایجان غربی منتشر شد. علاوه بر این، در ماه‌های اخیر تصاویر دریاچه‌ها و رودهای پرآب بازتاب گسترده‌ای در رسانه‌ها داشته است و در خبرها اعلام شده که تعدادی از سدهای ایران سرریز شده‌اند.
+
+اما داده‌های سازمان هواشناسی ایران نشان می‌دهد که «۱۸ استان در سال جاری با کم‌بارشی مواجه‌اند که تهران با بیش از ۳۸ درصد کاهش میانگین بارش، رکورددار است. در رتبه بعدی استان‌های قم و سمنان به‌ترتیب با ۳۱/۷ و ۳۱/۳ درصد کم‌بارشی قرار دارند.»
+</div>
+
+## BBCPersian — post 281500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دفتر رئیس‌جمهور ایران: وزرای پیشنهادی دفاع و اطلاعات به شرط تشکیل مجلس، در مهلت قانونی معرفی می‌شوند
+
+در حالی که فقط چند هفته تا مهلت قانونی معرفی وزرای پیشنهادی دفاع و اطلاعات از سوی دولت ایران باقی مانده، دفتر ریاست جمهوری قول داده است که آن‌ها «بزودی» معرفی خواهند شد.
+
+محمدمهدی طباطبایی، معاون ارتباطات دفتر رئیس‌جمهور ایران، به خبرگزاری تسنیم گفت که دولت مسعود پزشکیان برای معرفی وزیر پیشنهادی دفاع حدود دو هفته و برای معرفی وزیر پیشنهادی اطلاعات حدود چهل روز فرصت دارد.
+
+او قول داد که وزرای پیشنهادی «به شرط تشکیل مجلس» در موعد مقرر برای برگزاری جلسه رأی اعتماد معرفی شوند.
+
+مجلس ایران از زمان حملات آمریکا و اسرائیل در ۹ اسفند (۲۸ فوریه) تاکنون در محل دائمی خود تشکیل نشده است.
+
+عزیز نصیرزاده و اسماعیل خطیب، وزرای دفاع و اطلاعات ایران در جریان حملات آمریکا و اسرائیل کشته شدند.
+
+وزارت دفاع ایران در حال حاضر به سرپرستی سرتیپ مجید ابن‌الرضا اداره می‌شود اما نام سرپرست وزارت اطلاعات اعلام نشده است. خبرگزاری تسنیم گفته است که نام سرپرست وزارت اطلاعات «در زمان مقرر» اعلام خواهد شد.
+
+مطابق قوانین ایران، وزارتخانه‌هایی که وزیر ندارند فقط سه ماه می‌توانند با سرپرست اداره شوند و پیش از پایان این مهلت باید وزیر پیشنهادی به مجلس معرفی یا در غیر این صورت با حکم رهبر جمهوری اسلامی ایران مدت سرپرستی تمدید شود.
+
+https://bbc.in/43fw5tF
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین عرزشیا که بخاطر یک شب چهارشنبه سوری ، از آلودگی صوتی ناراحتن،
+۸۰روزه کنار خیابون عرعر میکنن🫏🫏
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389751
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389751_1779202363.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید مادرت، یه جنده معمولیه ،که الان شده چنده پرو 🙄
+‌‎
+در مورد سیمکارت سفید و دارندگان مادرقحبه‌ش هم کمی توضیح بدهید لطفا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا حتی یک نفرتون شکل آدم نیست؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121122
+
+<div align="center">
+  <a href="telegram/content/alonews_121122_1779202363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون ترامپ در مورد ایران: ممکن است مجبور شویم ضربه بزرگی دیگر به آن‌ها بزنیم. هنوز مطمئن نیستم.
+
+
+🔴خیلی زود خواهید فهمید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121121
+
+<div align="center">
+  <a href="telegram/content/alonews_121121_1779202363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 خبرنگار: دیروز چقدر به حمله به ایران نزدیک بودید؟
+
+
+🔴 ترامپ: یک ساعت فاصله داشتم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121120
+
+<div align="center">
+  <a href="telegram/content/alonews_121120_1779202365.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ درباره زمان حمله به ایران: «۲-۳ روز دیگر، شاید جمعه یا شنبه، اوایل هفته آینده. یک دوره زمانی محدود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 18:12
 ---
 
